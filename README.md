@@ -1,2 +1,4 @@
-# bacon
-Good crispy bacon fried first thing in the morning and emitting a sweet fragrance 
+# Xmas 2017
+Okotoks, AB
+Dec. 24, 2017 - Jan. 1, 2018
+
